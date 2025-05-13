@@ -1,0 +1,1 @@
+# computational-logic-homework-6-solved
